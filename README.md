@@ -6,7 +6,7 @@ I enjoy helping start-ups build their first product or application from scratch 
 ### Find me on the web 🌏
 - 🧠 Pick my brain on Twitter or Instagram
 - 📫 Connect with me on Linkedin or shoot me an Email
-- 📚 Check out my latest reads on my website
+- 📚 Check out my website or my latest reads
 
 ### Recent articles 🌱
 - Book
